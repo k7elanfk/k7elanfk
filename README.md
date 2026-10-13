@@ -1,4 +1,4 @@
-## Hi there 👋
+## just a 14 year old dumbass with a claude subscription :)
 
 <!--
 **k7elanfk/k7elanfk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
